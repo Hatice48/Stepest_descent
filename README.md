@@ -1,1 +1,0 @@
-# Stepest_descent
